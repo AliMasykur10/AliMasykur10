@@ -2,7 +2,7 @@
 
 ## 🚀 About Me
 
-I'm a front end developer...
+I'm a Web Programmer...
 
 ## 🔗 Links
 

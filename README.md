@@ -1,4 +1,4 @@
-# Hi, I'm AliMasykur! 👋
+# Hi, I'm Ali Masykur! 👋
 
 ## 🚀 About Me
 
